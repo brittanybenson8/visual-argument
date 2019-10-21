@@ -1,0 +1,1 @@
+My visual argument shows what could happen if we don't take action against pollution.  Beaches are extremely polluted, but since vacation beaches are clean, the problem seems distant and fall away.  For my argument, I showed people vacationing in the garbage.  I wanted to show that it is possible for this to become a new norm if actions are not taken.
